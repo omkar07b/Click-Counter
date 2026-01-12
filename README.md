@@ -1,4 +1,4 @@
-Click for demo : (omkarclick.ccbp.tech)
+Click for demo : https://omkarclick.ccbp.tech/
 
 ### Refer to the image below:
 
